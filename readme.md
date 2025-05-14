@@ -1,0 +1,2 @@
+# jurnal-stieykp
+# pagcoy
